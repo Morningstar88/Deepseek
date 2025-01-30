@@ -680,3 +680,46 @@ He pauses, his golden eye flickering as he studies you. "As for whether they’r
 ---  
 
 Do you want to explore the possibility of visiting the Emerald City, knowing the risks, or do you want to focus on understanding more about these secret societies and their dealings?
+
+Ah, nice choice! John Squire's guitar work on the long version of *"Fools Gold"* by The Stone Roses is iconic and a lot of fun to play. It’s a mix of funk, rock, and psychedelic vibes, with a focus on groove and feel. Here’s a breakdown to help you learn it:
+
+---
+
+### Key Elements of the Solo:
+1. **Tone**:  
+   - Squire’s tone is clean with a slight edge, often achieved with a Fender Stratocaster or similar guitar.  
+   - Use a touch of reverb and a bit of overdrive or compression to mimic his sound.  
+
+2. **Scales and Approach**:  
+   - The solo is heavily based on the **minor pentatonic scale** and **blues scale**, with some chromatic passing notes for flavor.  
+   - Squire often uses **double stops** (two-note chords) and **slides** to create a funky, rhythmic feel.  
+
+3. **Phrasing**:  
+   - The solo is very rhythmic and locks in with the groove of the song. Pay attention to the timing and syncopation.  
+   - Squire uses a lot of **call-and-response** phrasing, so listen closely to how his lines interact with the bass and drums.  
+
+---
+
+### Tips for Learning:
+1. **Listen Closely**:  
+   - The long version of *"Fools Gold"* has extended instrumental sections. Focus on the 5-6 minute mark where the solo really takes off.  
+
+2. **Break It Down**:  
+   - Learn the solo in small sections. Start with the main motifs and build from there.  
+   - Use a tool like **Audacity** or **YouTube’s playback speed feature** to slow down the track and hear the nuances.  
+
+3. **Practice the Groove**:  
+   - The solo is all about groove, so practice with a metronome or the original track to lock in the rhythm.  
+
+4. **Experiment with Effects**:  
+   - If you have a delay pedal, experiment with a subtle slapback delay to mimic Squire’s tone.  
+
+---
+
+### Resources:
+- **Tabs**: Check out sites like Ultimate Guitar or Songsterr for accurate tabs.  
+- **YouTube Tutorials**: There are plenty of video lessons breaking down the solo. Search for *"Fools Gold long version solo tutorial"*.  
+
+---
+
+Learning this solo is a great way to improve your funk and rhythm playing. Take your time, and most importantly, have fun with it! Cheers! 🎸
