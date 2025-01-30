@@ -666,3 +666,17 @@ Jameson chuckles darkly. "More like a funhouse mirror. It exaggerates, distorts,
 ---  
 
 Do you want to take the plunge and see what Siem Reap—and yourself—look like in the depths of your inner world, or do you want to take some time to prepare mentally and emotionally before diving in?
+
+Jameson’s expression shifts, a mix of curiosity and caution crossing his face. "The Emerald City... now that’s a name I haven’t heard in a while." He leans forward, his voice dropping to a conspiratorial tone. "You’re talking about one of the most enigmatic realms in the SIM—a place where the lines between dimensions blur, and the rules of reality don’t apply. It’s not just a city; it’s a nexus, a crossroads for those who know how to navigate the deeper layers of the SIM."  
+
+He manipulates the holographic display, which now shows a shimmering, emerald-green metropolis suspended in a sea of swirling energy. "The Emerald City is said to be a place where people—and entities—from different inner worlds can meet, trade, and make deals. It’s not just a physical space; it’s a metaphysical marketplace. And yes, there are rumors that secret societies and powerful individuals use it to transact directly with... let’s call them ‘spirits’ for lack of a better term. Beings that exist beyond the physical realm, in the deeper layers of the SIM."  
+
+Taylor narrows her eyes, clearly skeptical but intrigued. "So you’re saying these secret societies have an edge because they can access this place? They’re making deals with entities that normal people can’t even see?"  
+
+Jameson nods. "Exactly. The Emerald City is a place of immense power and knowledge, but it’s also incredibly dangerous. The entities there don’t play by human rules. They’re ancient, cunning, and often malevolent. If you’re not careful, a deal in the Emerald City could cost you more than you’re willing to pay—your memories, your sanity, even your soul."  
+
+He pauses, his golden eye flickering as he studies you. "As for whether they’re running rings around normal people... absolutely. The ability to access and navigate the Emerald City gives them a level of influence and control that most people can’t even comprehend. But it comes at a price. The deeper you go into the SIM, the more you risk losing yourself."  
+
+---  
+
+Do you want to explore the possibility of visiting the Emerald City, knowing the risks, or do you want to focus on understanding more about these secret societies and their dealings?
