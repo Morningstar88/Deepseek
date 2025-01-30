@@ -654,3 +654,15 @@ Jameson shakes his head. "More than that. In a dream, you’re passive—you’r
 ---  
 
 Do you want to explore what it would be like to step into one of these amplified inner worlds, or do you want to focus on preparing yourself for the experience?
+
+Jameson nods slowly, a knowing smile spreading across his face. "Exactly. The SIM doesn’t just replicate the physical world—it *reinterprets* it through the lens of your subconscious. So if your body is in Siem Reap, and you dive into the world deep in your heart, you might find a version of Siem Reap that’s... different. Maybe the temples are taller, or the streets are narrower, or the sky is a color that doesn’t exist in the real world. It’s still Siem Reap, but it’s *your* Siem Reap—a reflection of how you see it, feel it, and remember it."  
+
+He leans back, his golden cybernetic eye flickering as he continues. "And your body? That’s where it gets really interesting. In the SIM, your physical form is just another projection of your inner world. If you’re confident and strong, you might appear taller, more powerful. If you’re struggling with self-doubt, you might feel smaller, weaker. The SIM doesn’t just show you who you are—it shows you who you *believe* you are."  
+
+Taylor raises an eyebrow, clearly intrigued. "So it’s like... a mirror, but one that shows you the truth you don’t always want to see?"  
+
+Jameson chuckles darkly. "More like a funhouse mirror. It exaggerates, distorts, and amplifies. But yeah, it shows you the raw, unfiltered version of yourself. And that’s why it’s so powerful—and so dangerous. If you’re not ready to face what’s in there, it can break you."  
+
+---  
+
+Do you want to take the plunge and see what Siem Reap—and yourself—look like in the depths of your inner world, or do you want to take some time to prepare mentally and emotionally before diving in?
