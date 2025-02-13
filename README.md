@@ -2930,3 +2930,172 @@ Absolutely! Let’s dive into more example sentences using **នៅ (nouw)** wit
 
 Let me know if you’d like even more examples or further explanations! 😊
 
+You’re welcome! I’m glad you’re enjoying the Khmer lessons. Let’s dive into some **basic Khmer grammar concepts** to help you build a stronger foundation. I’ll break things down into simple explanations with examples.
+
+---
+
+### **1. Sentence Structure (Subject + Verb + Object)**
+Khmer follows a **Subject-Verb-Object (SVO)** structure, similar to English.
+
+#### Example:
+- **ខ្ញុំញ៉ាំបាយ។**  
+  *Khnhom nhom bay.*  
+  (Knhom nhom bye.)  
+  **I eat rice.**
+
+  - ខ្ញុំ (khnhom) = I (Subject)  
+  - ញ៉ាំ (nhom) = eat (Verb)  
+  - បាយ (bay) = rice (Object)
+
+---
+
+### **2. No Verb Conjugation**
+Khmer verbs **do not change** based on tense, person, or number. Instead, time is indicated using **time words** or **context**.
+
+#### Examples:
+- **ខ្ញុំញ៉ាំបាយ។**  
+  *Khnhom nhom bay.*  
+  (Knhom nhom bye.)  
+  **I eat rice. / I am eating rice.**
+
+- **ខ្ញុំនឹងញ៉ាំបាយ។**  
+  *Khnhom nung nhom bay.*  
+  (Knhom noong nhom bye.)  
+  **I will eat rice.**
+
+- **ខ្ញុំបានញ៉ាំបាយ។**  
+  *Khnhom ban nhom bay.*  
+  (Knhom ban nhom bye.)  
+  **I ate rice.**
+
+---
+
+### **3. Time Indicators**
+To indicate **past**, **present**, or **future**, Khmer uses specific words:
+
+- **បាន (ban)** = past (already happened)  
+  Example: ខ្ញុំបានញ៉ាំបាយ។ (I ate rice.)
+
+- **កំពុង (kompong)** = present (currently happening)  
+  Example: ខ្ញុំកំពុងញ៉ាំបាយ។ (I am eating rice.)
+
+- **នឹង (nung)** = future (will happen)  
+  Example: ខ្ញុំនឹងញ៉ាំបាយ។ (I will eat rice.)
+
+---
+
+### **4. Questions**
+To form questions, Khmer often uses **question words** at the beginning or end of a sentence. The sentence structure remains the same.
+
+#### Common Question Words:
+- **តើ (tae)** = (used to start a question)  
+  Example: តើអ្នកសុខសប្បាយទេ? (Are you well?)
+
+- **អ្វី (avei)** = what  
+  Example: អ្នកធ្វើអ្វី? (What are you doing?)
+
+- **ណា (na)** = where  
+  Example: អ្នកនៅណា? (Where are you?)
+
+- **ហេតុអ្វី (het avei)** = why  
+  Example: ហេតុអ្វីអ្នកយំ? (Why are you crying?)
+
+- **ពេលណា (pel na)** = when  
+  Example: ពេលណាអ្នកមក? (When will you come?)
+
+---
+
+### **5. Possession**
+To show possession, Khmer uses the word **របស់ (robos)**, which means **"of"** or **"belonging to."**
+
+#### Examples:
+- **សៀវភៅរបស់ខ្ញុំ។**  
+  *Sievphow robos khnhom.*  
+  (Siev-phow ro-bos knhom.)  
+  **My book.**
+
+- **ផ្ទះរបស់គាត់។**  
+  *Phteah robos koat.*  
+  (Phteah ro-bos koat.)  
+  **His/Her house.**
+
+---
+
+### **6. Adjectives**
+Adjectives in Khmer come **after** the noun they describe.
+
+#### Examples:
+- **ផ្ទះធំ។**  
+  *Phteah thom.*  
+  (Phteah thom.)  
+  **Big house.**
+
+- **សៀវភៅថ្មី។**  
+  *Sievphow thmei.*  
+  (Siev-phow thmay.)  
+  **New book.**
+
+- **កាហ្វេក្តៅ។**  
+  *Kafe ktaw.*  
+  (Ka-fay ktaw.)  
+  **Hot coffee.**
+
+---
+
+### **7. Plurality**
+Khmer does not have plural forms for nouns. Instead, **context** or **quantifiers** are used to indicate plurality.
+
+#### Examples:
+- **សត្វឆ្កែ។**  
+  *Sat chhke.*  
+  (Sat chhke.)  
+  **Dog/Dogs.**
+
+- **សត្វឆ្កែច្រើន។**  
+  *Sat chhke chraen.*  
+  (Sat chhke chraen.)  
+  **Many dogs.**
+
+---
+
+### **8. Negation**
+To make a sentence negative, use **មិន (min)** before the verb and **ទេ (teh)** at the end of the sentence.
+
+#### Examples:
+- **ខ្ញុំមិនញ៉ាំបាយទេ។**  
+  *Khnhom min nhom bay teh.*  
+  (Knhom min nhom bye tay.)  
+  **I do not eat rice.**
+
+- **គាត់មិនមកទេ។**  
+  *Koat min mok teh.*  
+  (Koat min mok tay.)  
+  **He/She is not coming.**
+
+---
+
+### **9. Pronouns**
+Khmer pronouns are **gender-neutral** and often depend on the level of formality.
+
+#### Common Pronouns:
+- **ខ្ញុំ (khnhom)** = I/me  
+- **អ្នក (neak)** = you (formal)  
+- **គាត់ (koat)** = he/she (formal)  
+- **យើង (yeung)** = we/us  
+- **ពួកគេ (puok ke)** = they/them  
+
+---
+
+### **10. Polite Particles**
+Khmer often uses **polite particles** at the end of sentences to show respect or politeness.
+
+- **បាទ (bat)** = used by males  
+  Example: បាទ ខ្ញុំមកហើយ។ (Yes, I have come.)
+
+- **ចាស (chas)** = used by females  
+  Example: ចាស ខ្ញុំមកហើយ។ (Yes, I have come.)
+
+---
+
+Let me know if you’d like to explore any of these topics in more detail or if you have specific questions! 😊
+
