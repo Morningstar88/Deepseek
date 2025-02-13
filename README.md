@@ -3169,3 +3169,121 @@ Got it! Let’s simplify the sentences further while keeping the meaning clear a
 
 This version is shorter and simpler while still conveying the key points. Let me know if you’d like further tweaks! 😊
 
+Absolutely! Here’s the simplified version of the sentences with a **3-5 word vocabulary glossary** under each one. This will help you learn key words individually.
+
+---
+
+### **1. Opportunity Cost**
+- **Khmer**: នាំចេញផ្លែកំពត នាំចូលម៉ាម៉ាឡេត ថ្លៃខ្ពស់ជាងផលិតក្នុងស្រុក។  
+  *Namchenh pleh kompot, namchol marmalade, thlay khpos cheang pholit knong srok.*  
+   **Export kumquats, import marmalade: more expensive than local production.**
+
+   - **Glossary**:  
+     - នាំចេញ (namchenh) = export  
+     - ផ្លែកំពត (pleh kompot) = kumquats  
+     - នាំចូល (namchol) = import  
+     - ថ្លៃខ្ពស់ (thlay khpos) = expensive  
+     - ផលិត (pholit) = produce  
+
+---
+
+### **2. Comparative Advantage**
+- **Khmer**: កម្ពុជាមានអត្ថប្រយោជន៍ផលិតផ្លែកំពត ជាជាងនាំចេញ។  
+  *Kampuchea mean attaprayoch pholit pleh kompot, chea cheang namchenh.*  
+   **Cambodia benefits more from producing kumquats than exporting them.**
+
+   - **Glossary**:  
+     - កម្ពុជា (Kampuchea) = Cambodia  
+     - អត្ថប្រយោជន៍ (attaprayoch) = benefit  
+     - ផ្លែកំពត (pleh kompot) = kumquats  
+     - ជាជាង (chea cheang) = more than  
+     - នាំចេញ (namchenh) = export  
+
+---
+
+### **3. Value Addition**
+- **Khmer**: ផលិតម៉ាម៉ាឡេតក្នុងស្រុក បង្កើតតម្លៃបន្ថែម។  
+  *Pholit marmalade knong srok, bangkeut tamlay bonthem.*  
+   **Produce marmalade locally: adds value.**
+
+   - **Glossary**:  
+     - ផលិត (pholit) = produce  
+     - ម៉ាម៉ាឡេត (marmalade) = marmalade  
+     - ក្នុងស្រុក (knong srok) = locally  
+     - បង្កើត (bangkeut) = create  
+     - តម្លៃបន្ថែម (tamlay bonthem) = added value  
+
+---
+
+### **4. Trade Imbalance**
+- **Khmer**: នាំចេញផ្លែកំពត នាំចូលម៉ាម៉ាឡេត ខាតប្រាក់ច្រើន។  
+  *Namchenh pleh kompot, namchol marmalade, khat prak chraen.*  
+   **Export kumquats, import marmalade: lose money.**
+
+   - **Glossary**:  
+     - នាំចេញ (namchenh) = export  
+     - ផ្លែកំពត (pleh kompot) = kumquats  
+     - នាំចូល (namchol) = import  
+     - ខាតប្រាក់ (khat prak) = lose money  
+     - ច្រើន (chraen) = a lot  
+
+---
+
+### **5. Local Industry Development**
+- **Khmer**: ផលិតម៉ាម៉ាឡេតក្នុងស្រុក អភិវឌ្ឍឧស្សាហកម្ម។  
+  *Pholit marmalade knong srok, aphivodth usahakamm.*  
+   **Produce marmalade locally: develop industry.**
+
+   - **Glossary**:  
+     - ផលិត (pholit) = produce  
+     - ម៉ាម៉ាឡេត (marmalade) = marmalade  
+     - ក្នុងស្រុក (knong srok) = locally  
+     - អភិវឌ្ឍ (aphivodth) = develop  
+     - ឧស្សាហកម្ម (usahakamm) = industry  
+
+---
+
+### **6. Self-Sufficiency**
+- **Khmer**: ផលិតម៉ាម៉ាឡេតខ្លួនឯង កាត់បន្ថយការពឹងផ្អែក។  
+  *Pholit marmalade khluon eng, katbonthey kar pongphkaek.*  
+   **Produce marmalade locally: reduce dependence.**
+
+   - **Glossary**:  
+     - ផលិត (pholit) = produce  
+     - ម៉ាម៉ាឡេត (marmalade) = marmalade  
+     - ខ្លួនឯង (khluon eng) = own/self  
+     - កាត់បន្ថយ (katbonthey) = reduce  
+     - ពឹងផ្អែក (pongphkaek) = dependence  
+
+---
+
+### **7. Environmental Impact**
+- **Khmer**: នាំចេញផ្លែកំពត នាំចូលម៉ាម៉ាឡេត ប៉ះពាល់បរិស្ថាន។  
+  *Namchenh pleh kompot, namchol marmalade, pheapbal borisathan.*  
+   **Export kumquats, import marmalade: harms environment.**
+
+   - **Glossary**:  
+     - នាំចេញ (namchenh) = export  
+     - ផ្លែកំពត (pleh kompot) = kumquats  
+     - នាំចូល (namchol) = import  
+     - ប៉ះពាល់ (pheapbal) = harm  
+     - បរិស្ថាន (borisathan) = environment  
+
+---
+
+### **Summary**
+- **Khmer**: ផលិតម៉ាម៉ាឡេតក្នុងស្រុក ល្អជាងនាំចេញផ្លែកំពត នាំចូលម៉ាម៉ាឡេត។  
+  *Pholit marmalade knong srok, laor cheang namchenh pleh kompot, namchol marmalade.*  
+   **Produce marmalade locally: better than exporting kumquats, importing marmalade.**
+
+   - **Glossary**:  
+     - ផលិត (pholit) = produce  
+     - ម៉ាម៉ាឡេត (marmalade) = marmalade  
+     - ក្នុងស្រុក (knong srok) = locally  
+     - ល្អជាង (laor cheang) = better than  
+     - នាំចេញ (namchenh) = export  
+
+---
+
+This format should make it easier to learn the vocabulary while understanding the sentences. Let me know if you need further adjustments! 😊
+
