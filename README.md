@@ -2494,3 +2494,61 @@ Let's say we want to rotate a vector \(\vec{u} = (1, 0, 0)\) by 90 degrees (\(\t
 Quaternions offer a powerful and efficient way to handle rotations, avoiding issues like gimbal lock that can occur with other methods.
 
 I hope this helps you understand how \(i\), \(j\), and \(k\) work with rotations! If you have any more questions, feel free to ask. 😊
+
+No problem at all! I’m happy to help. Here’s the final version with **Khmer script**, **phonetics**, and **English** all together for clarity:
+
+---
+
+1. **តើអ្នកលក់អាហារនេះតម្លៃប៉ុន្មាន?**  
+   *Tae neak lok ahah neh tamlay ponman?*  
+   (Tay nak lohk ah-hah neh tam-lie pon-man?)  
+   **How much does this food cost?**
+
+2. **ខ្ញុំចង់ទិញបន្លែស្រស់។**  
+   *Khnhom jong tin bonle sras.*  
+   (Knhom jong tin bon-lay srahs.)  
+   **I want to buy fresh vegetables.**
+
+3. **តើអ្នកមានផ្លែឈើប៉ុន្មានមុខ?**  
+   *Tae neak mean pleh cheu ponman muk?*  
+   (Tay nak mee-an play cheu pon-man mook?)  
+   **How many types of fruit do you have?**
+
+4. **ខ្ញុំអាចទិញច្រើនបានទេ?**  
+   *Khnhom arch tin chran ban teh?*  
+   (Knhom arch tin chrahn ban tay?)  
+   **Can I buy in bulk?**
+
+5. **តើអ្នកអាចផ្តល់ឪកាសបញ្ចុះតម្លៃបានទេ?**  
+   *Tae neak arch phtol okas bonchoh tamlay ban teh?*  
+   (Tay nak arch phtol oh-kahs bon-joh tam-lie ban tay?)  
+   **Can you give me a discount?**
+
+6. **ខ្ញុំចង់ទិញស្រូវពីកសិដ្ឋានរបស់អ្នក។**  
+   *Khnhom jong tin srov pi kasetthan robos neak.*  
+   (Knhom jong tin srow pee ka-set-tahn ro-bos nak.)  
+   **I want to buy rice from your farm.**
+
+7. **តើអ្នកមានផលិតផលសរីរាង្គទេ?**  
+   *Tae neak mean pholit phol saree-angk teh?*  
+   (Tay nak mee-an pho-lit phol sa-ree-ang tay?)  
+   **Do you have organic products?**
+
+8. **ខ្ញុំចង់ធ្វើកិច្ចសន្យាជាមួយកសិដ្ឋានរបស់អ្នក។**  
+   *Khnhom jong tveu kechchana chea muoy kasetthan robos neak.*  
+   (Knhom jong tveu kech-cha-na chea muoy ka-set-tahn ro-bos nak.)  
+   **I want to make a contract with your farm.**
+
+9. **តើអ្នកអាចផ្គត់ផ្គង់ផលិតផលឱ្យខ្ញុំជារៀងរាល់ខែបានទេ?**  
+   *Tae neak arch phkot phkung pholit phol aoy khnhom chea rieng rol khae ban teh?*  
+   (Tay nak arch phkot phkung pho-lit phol aoy knhom chea ree-eng rol kai ban tay?)  
+   **Can you supply products to me every month?**
+
+10. **ខ្ញុំចង់ដឹងពីតម្លៃសរុបសម្រាប់ការទិញនេះ។**  
+    *Khnhom jong doeng pi tamlay sorop samrab kar tin neh.*  
+    (Knhom jong doeng pee tam-lie so-rop sam-rap kar tin neh.)  
+    **I want to know the total price for this purchase.**
+
+---
+
+This should make it easier to follow along! Let me know if you need anything else. 😊
