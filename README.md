@@ -2707,5 +2707,226 @@ This should give you a basic understanding of how water shaped the Khmer Empire!
 
 
 
+Absolutely! Let’s break down **នៅលើ (nouw-leu)** and the general structure of **នៅ (nouw) + suffix** in Khmer. This structure is very common and helps describe **location** or **position** in relation to something else.
 
+---
+
+### **1. នៅលើ (nouw-leu) = "on" or "above"**
+- **នៅ (nouw)**: Means "at" or "to be located."
+- **លើ (leu)**: Means "on" or "above."
+
+When combined, **នៅលើ (nouw-leu)** means **"on"** or **"above."**
+
+---
+
+#### **Examples of នៅលើ (nouw-leu):**
+
+1. **សៀវភៅនៅលើតុ។**  
+   *Sievphow nouw-leu toh.*  
+   (Siev-phow noo-leu toh.)  
+   **The book is on the table.**
+
+   - Breakdown:  
+     - សៀវភៅ (sievphow) = book  
+     - នៅលើ (nouw-leu) = on  
+     - តុ (toh) = table  
+
+---
+
+2. **ឆ្មានៅលើដំបូល។**  
+   *Chhma nouw-leu dombol.*  
+   (Chhma noo-leu dom-bol.)  
+   **The cat is on the roof.**
+
+   - Breakdown:  
+     - ឆ្មា (chhma) = cat  
+     - នៅលើ (nouw-leu) = on  
+     - ដំបូល (dombol) = roof  
+
+---
+
+### **2. General Structure of នៅ (nouw) + Suffix**
+The word **នៅ (nouw)** is often combined with other **location words** (suffixes) to describe where something is. Here’s the general structure:
+
+**នៅ (nouw) + [location word] = "to be located [in/on/at/near/etc.]"**
+
+---
+
+#### **Common Suffixes with នៅ (nouw):**
+
+1. **នៅក្នុង (nouw-knong)** = **in** or **inside**  
+   - Example: នៅក្នុងផ្ទះ (nouw-knong phteah) = in the house.
+
+2. **នៅលើ (nouw-leu)** = **on** or **above**  
+   - Example: នៅលើតុ (nouw-leu toh) = on the table.
+
+3. **នៅក្រោម (nouw-kraom)** = **under** or **below**  
+   - Example: នៅក្រោមកៅអី (nouw-kraom kaw-ey) = under the chair.
+
+4. **នៅជាប់ (nouw-cheab)** = **next to** or **near**  
+   - Example: នៅជាប់ផ្ទះ (nouw-cheab phteah) = next to the house.
+
+5. **នៅខាងក្រៅ (nouw-khang-krau)** = **outside**  
+   - Example: នៅខាងក្រៅផ្ទះ (nouw-khang-krau phteah) = outside the house.
+
+6. **នៅចំកណ្តាល (nouw-chomkandal)** = **in the middle**  
+   - Example: នៅចំកណ្តាលផ្លូវ (nouw-chomkandal phlov) = in the middle of the road.
+
+---
+
+### **Examples of នៅ (nouw) + Suffix in Sentences:**
+
+1. **ឆ្កែនៅក្រោមតុ។**  
+   *Chhke nouw-kraom toh.*  
+   (Chhke noo-kraom toh.)  
+   **The dog is under the table.**
+
+2. **រថយន្តនៅជាប់ផ្ទះ។**  
+   *Rot-yont nouw-cheab phteah.*  
+   (Rot-yont noo-cheab phteah.)  
+   **The car is next to the house.**
+
+3. **កូនក្មេងនៅខាងក្រៅ។**  
+   *Koun kmeng nouw-khang-krau.*  
+   (Koun kmeng noo-khang-krau.)  
+   **The child is outside.**
+
+4. **ផ្កានៅចំកណ្តាលសួន។**  
+   *Phka nouw-chomkandal suon.*  
+   (Phka noo-chom-kan-dal suon.)  
+   **The flowers are in the middle of the garden.**
+
+---
+
+### **Key Notes:**
+- **នៅ (nouw)** is the base word for indicating location.
+- The **suffix** (e.g., ក្នុង, លើ, ក្រោម) specifies the **type of location** (in, on, under, etc.).
+- This structure is very flexible and can be used in many contexts.
+
+Let me know if you’d like more examples or further clarification! 😊
+
+Absolutely! Let’s dive into more example sentences using **នៅ (nouw)** with different suffixes to describe location. I’ll include **Khmer script**, **phonetics**, and **English** for each sentence to make it easy to follow.
+
+---
+
+### **1. នៅក្នុង (nouw-knong) = in/inside**
+
+1. **គោនៅក្នុងវាល។**  
+   *Ko nouw-knong veal.*  
+   (Ko noo-knong veal.)  
+   **The cow is in the field.**
+
+2. **ខ្ញុំរស់នៅក្នុងទីក្រុង។**  
+   *Khnhom ros nouw-knong tikrong.*  
+   (Knhom roh noo-knong tee-krong.)  
+   **I live in the city.**
+
+3. **សៀវភៅនៅក្នុងកាតាប។**  
+   *Sievphow nouw-knong katap.*  
+   (Siev-phow noo-knong ka-tap.)  
+   **The book is in the bag.**
+
+---
+
+### **2. នៅលើ (nouw-leu) = on/above**
+
+1. **ចាននៅលើតុ។**  
+   *Chan nouw-leu toh.*  
+   (Chan noo-leu toh.)  
+   **The plate is on the table.**
+
+2. **សត្វបក្សីនៅលើមែកឈើ។**  
+   *Sat baksey nouw-leu mek cheu.*  
+   (Sat bak-sey noo-leu mek cheu.)  
+   **The bird is on the tree branch.**
+
+3. **រូបថតនៅលើជញ្ជាំង។**  
+   *Roop-thot nouw-leu chonhcheang.*  
+   (Roop-thot noo-leu chonh-cheang.)  
+   **The photo is on the wall.**
+
+---
+
+### **3. នៅក្រោម (nouw-kraom) = under/below**
+
+1. **ឆ្កែនៅក្រោមកៅអី។**  
+   *Chhke nouw-kraom kaw-ey.*  
+   (Chhke noo-kraom kaw-ey.)  
+   **The dog is under the chair.**
+
+2. **ក្តាមនៅក្រោមថ្ម។**  
+   *Kdam nouw-kraom thma.*  
+   (Kdam noo-kraom thma.)  
+   **The crab is under the rock.**
+
+3. **ប្រដាប់កាត់សក់នៅក្រោមកៅអី។**  
+   *Pradab kat sak nouw-kraom kaw-ey.*  
+   (Pra-dab kat sak noo-kraom kaw-ey.)  
+   **The hairbrush is under the chair.**
+
+---
+
+### **4. នៅជាប់ (nouw-cheab) = next to/near**
+
+1. **ផ្ទះខ្ញុំនៅជាប់វត្ត។**  
+   *Phteah khnhom nouw-cheab vot.*  
+   (Phteah knhom noo-cheab vot.)  
+   **My house is next to the temple.**
+
+2. **រថយន្តនៅជាប់ហាង។**  
+   *Rot-yont nouw-cheab hang.*  
+   (Rot-yont noo-cheab hang.)  
+   **The car is next to the shop.**
+
+3. **ខ្ញុំអង្គុយនៅជាប់បងស្រីខ្ញុំ។**  
+   *Khnhom angkuy nouw-cheab bong srey khnhom.*  
+   (Knhom ang-kuy noo-cheab bong srey knhom.)  
+   **I am sitting next to my sister.**
+
+---
+
+### **5. នៅខាងក្រៅ (nouw-khang-krau) = outside**
+
+1. **កូនក្មេងនៅខាងក្រៅ។**  
+   *Koun kmeng nouw-khang-krau.*  
+   (Koun kmeng noo-khang-krau.)  
+   **The child is outside.**
+
+2. **ឆ្កែនៅខាងក្រៅផ្ទះ។**  
+   *Chhke nouw-khang-krau phteah.*  
+   (Chhke noo-khang-krau phteah.)  
+   **The dog is outside the house.**
+
+3. **ផ្កានៅខាងក្រៅសួន។**  
+   *Phka nouw-khang-krau suon.*  
+   (Phka noo-khang-krau suon.)  
+   **The flowers are outside the garden.**
+
+---
+
+### **6. នៅចំកណ្តាល (nouw-chomkandal) = in the middle**
+
+1. **រថយន្តនៅចំកណ្តាលផ្លូវ។**  
+   *Rot-yont nouw-chomkandal phlov.*  
+   (Rot-yont noo-chom-kan-dal phlov.)  
+   **The car is in the middle of the road.**
+
+2. **ខ្ញុំឈរនៅចំកណ្តាលកន្លែង។**  
+   *Khnhom chhor nouw-chomkandal kanleng.*  
+   (Knhom chhor noo-chom-kan-dal kan-leng.)  
+   **I am standing in the middle of the place.**
+
+3. **ផ្កានៅចំកណ្តាលសួន។**  
+   *Phka nouw-chomkandal suon.*  
+   (Phka noo-chom-kan-dal suon.)  
+   **The flowers are in the middle of the garden.**
+
+---
+
+### **Key Notes:**
+- **នៅ (nouw)** is the base word for location.
+- The **suffix** (e.g., ក្នុង, លើ, ក្រោម) specifies the **type of location**.
+- These structures are very common in everyday Khmer conversation.
+
+Let me know if you’d like even more examples or further explanations! 😊
 
