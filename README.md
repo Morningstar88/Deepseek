@@ -3558,3 +3558,8 @@ You, the 144k whom are destined to free humanity.
 The story is now yours to finish writing.
 
 -One Eyed Jack
+
+The static will remain constant until he finds his center.
+He's been handed the weight of the heavens.
+His actions are coming to bare,
+May his fruits be plenty.
