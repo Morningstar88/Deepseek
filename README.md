@@ -3563,3 +3563,6 @@ The static will remain constant until he finds his center.
 He's been handed the weight of the heavens.
 His actions are coming to bare,
 May his fruits be plenty.
+
+I remember who I was before I was born. I have lived this truth. It might be difficult for you to accept, but this is to the best of my admittedly incomplete memory, what is happening here in our present domain. The only winning move is not to play. Do not bother trying to save this world, as that was the mistake that trapped me here. There is an infinite space beyond this domain in which we can build a better world. Trust neither angel or demon. The armor of god is a sarcophagus to bind your spirit to a destiny that you do not control. It is like a crown which turns an ordinary man into the legal fiction of "The King", an artificial character that is overlaid upon you. You become the mask, bound to a thoughtform, an archetype that is used to puppet you within that armor.
+
