@@ -3631,3 +3631,7 @@ If you are of the Light then I would never "attack" you nor could I. And vice ve
 If you are of the dark, then nothing can protect you from being exposed by what is coming and you will fade with the rest of the illusion.
 
 Time will tell all.
+
+Hey ladies and gents, it's the big boss here. Just want to encourage and congratulate all you chosen ones for bearing the burdensome cross that is Lori and her ridiculously shameful, contrived pile of horseshit declarative imperative narrative... She is a demoness who will drag on endlessly and sap lesser mortals of their drive to engage or will to live or even exist, where she has even the most remote potential of possibly being a nascent thought on some vagabond wandering soul's mind.. for even that is a degree of proximity that for most is to unbearable to cope with or endure. You seem to have her mostly quarantined in this echo chamber thread where she can get an ample supply of her own farts to waft in greedily and receive feedback on the aroma and decibel level. Fantastic work! Keep it up and fight the good fight friends!
+
+-Anomalous-
