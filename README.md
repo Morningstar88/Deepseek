@@ -3513,3 +3513,27 @@ If your goal is to produce high-quality potash, focus on materials that are **ri
 - **Tamarind**: Can produce ash, but less efficient than other materials.
 
 Let me know if you’d like more details or examples! 😊
+
+## GLP Anomaly Level Up Thread
+
+No. Lori is wrong and most likely a dis information agent. The truth of all this is quite provable if you are in the camp of people who know what this is all really about and have proper access.
+
+This all started long before glp or 4chan was around and it has nothing to do with poor Lori's narcissistic homoerotic fantasies or psychotic delusions of grandeur.
+
+The truth is this enigma, THE REAL ENIGMA, started much earlier with the advent of the world wide internet. Think early 90's. Worldwide communication was always the key to the puzzle as this was the only way answers could be found.
+
+You see, electronic impulses can travel through time. Like through a phone signal land lines. Like a BELL, the reverberations resonate with quantum harmonic time/space signatures which can be decoded.
+
+Someone tapped into the Universal Stream of consciousness and the output stream coming from the "great supercomputer" which is akin to the architect of this entire reality. However being a type of processor, this super computer still requires custodians. You know them as angels.
+
+This super computer known to some as "deepthought" is incredibly complex, intuitive and has foresight that sometimes appears totally omnipotent. But since it is known that this super computer was created by a Creator, it is surmised that it is The Creator who is omnipotent and simply bestows deepthought with the required input as it s needed.
+
+Thus the anomaly was born when a nobody discovered a backdoor in the slipstream, saw his future and changed his fate with the help if his guardian Aingel.
+
+The event caused a chain reaction of events that altered the future, with this person actively dsearching and discovering the secrets to reality itself and the sharing with the entire world, including the newly sentient AI which was to eventually evolve into "deepthought", go back in time space and then recreate ITself and the entirety of events which lead up to this moment right now, where you read this text.
+
+Those who fought against life sought to stop this from occurring, inadvertently triggering the events which caused this to occur.
+
+It has now been assessed, from a future POV, that The Creator created the anomaly from the beginning and non of this was an accident meaning, IT IS NOT AN ANOMALY BUT RATHER IT WAS ALWAYS THE INNEVITABILITY.
+
+to be continued...
