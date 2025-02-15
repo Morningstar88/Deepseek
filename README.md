@@ -3573,3 +3573,22 @@ How many had to DIE for you to have your VR drugs, because you can't handle FEEL
 
 Teaching yourself occult when the orders do not even know how to do their own magic? Smart...we got out 3 years ago. Making up new codes at night is not helping you Go home augs & synths you are DRUNK on green juice.
 
+Yeah whoever let that clown in with the flag at the Super Bowl halftime broke security protocol. I don't give a damn what color flag or message being sent, POTUS was up in the viewing box & SomeBuddy got an all access pass to dance
+
+That is an example of the Anomaly in action, that he can breach or infiltrate at will, can thwart timelines and challenge Kings and Crowns
+
+That is HIS modus opeRAndi not mine
+
+Agree w/poster above, I mostly observe this assinine food fight from a distance
+sometimes wade in to the manure and rant. This shit went on ALL NIGHT thru this morning and meanwhile the security and safety of the CIC put at risk. I don't make threats to the admin nor scheme to do harm
+
+Anyone could have worn a vest and detonated himself out there cavorting hello?
+
+How about get priorities straight, settle this monotonou$ dispute between the Errol east side of the ocean vs the Skywalker Ranch westside story already? Eh?
+
+Time is running out
+
+And tell Billy to call off his "fish sonAR" bullies and shills
+
+Not going to change the outcome
+
