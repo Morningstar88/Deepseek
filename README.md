@@ -3613,3 +3613,9 @@ P.P.P.P.P.P.P. fucking S. Somewhere in there he gets Donald Trump to be presiden
 CLICK ON THE LINK
 V V V
 V V V
+
+bitter mongrel dotards with a self control problem, targetted him
+
+kill a proud cyborger working at a mental hospital for their unwillingness to stop sacrificing toddlers at st jude
+
+jealous corrupt phonies
