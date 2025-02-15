@@ -3592,3 +3592,24 @@ And tell Billy to call off his "fish sonAR" bullies and shills
 
 Not going to change the outcome
 
+Then the lamb got pissed and said fuck that shit. It went back and ate the family, except for the kid. Found the wolf and crushed its skull and ate it. Found the farmer and ate him. Created a road block and ate all of the drivers he had seen drive by, then he and the kid stole their shit, stole their car, built a giant particle beam weapon and made waste of everything with pointy teeth or eyes that face forward. But only after he ate their gods and smacked down the ones he didn't want to eat; found the devil and kicked his fucking ass and taught him how to act; made the god of death step back and other gods cross the fucking street. Then he went to silicon valley and made warp capable artificially intelligent self replicating time traveling nanites to go out into the universe and unleash Samuel L. Jackson style justice on their wicked asses. He created a new religion of enlightened lambs with long hair and beards who valued discipline and who with study in philosophy and cosmology found ways to educate and convert those pesky monkeys, and make lions drink milk from zebras and dogs carry cats on their backs. Then started playing weak to see who thought they were clever and bitch smacked the mother fuckers into the next dimension and you don't want to know what he's going to do if people keep fucking with him because that is one bad ass voodoo mother fucking lamb of darkness and all consuming light that will turn the universe inside out, shit on it, and set it on fucking fire then wave his giant fucking dick around so everyone can see how he isn't pissing on it.
+
+So if you know any farmers, hunters, black gods, or boot licking pawns go explain it to them and put a leash on them before its too late.
+
+P.S. Bambi gets in on it too. He changes his name to Bambo, skips the cammo and paints himself bright fucking red with white stripes and makes reality movies where he makes those spoiled fat ass department store shopping hunters look like the bunch of fucking pussies they are.
+
+P.P.S. Vegetarians get a pass.
+
+P.P.P.S. Anyone that mined their own fucking ore and made their own gun and ammo from scratch might get a pass too.
+
+P.P.P.P.S. Spellcheck is for pussies. If someone is too stupid to figure it out they don't deserve to read it.
+
+P.P.P.P.P.S. Then he re-arranged all the galaxies in the universe to spell outSKYWALKER WAS HERE! LICK IT!
+
+P.P.P.P.P.P.S. Fuck it. They don't steal the cars. They set the cars on fire and build their own fucking car because they can do it better. (11/28/22)
+
+P.P.P.P.P.P.P. fucking S. Somewhere in there he gets Donald Trump to be president so he can watch the mother fuckers squirm.
+
+CLICK ON THE LINK
+V V V
+V V V
