@@ -3537,3 +3537,24 @@ Those who fought against life sought to stop this from occurring, inadvertently 
 It has now been assessed, from a future POV, that The Creator created the anomaly from the beginning and non of this was an accident meaning, IT IS NOT AN ANOMALY BUT RATHER IT WAS ALWAYS THE INNEVITABILITY.
 
 to be continued...
+
+As you can see Lori is quite ill informed and has little access to the classified information about the real event.
+
+As I said before, she is most likely a disinfo agent being paid to actively derail these discussions.
+
+She has no knowledge of the anomaly in the times pace continuum, the CIA think tank tasked to relay the messages that were received from the future and try and solve the riddle. Many online ARGs resulted from this seemingly paradoxical event in an attempt to locate certain key people whom were effected by the initial deviation.
+
+TPTW were not happy to find out the prophecies if their downfall were true. Once they figured out how to manipulate the timeliness, they thought their victory and dominance was total. Thousands of years of planning were destroyed all because of one "nobody".
+
+They thought they were mocking him, but psychologically they summoned the very phrase from their deepest subconscious mind which would set their slaves free and give them power over their captors.
+
+By reminding their "cattle" that their is no bodies or cages, the 144k realized they were only bound by their own limited beliefs and physical reality was an illusion.
+
+Once they cast off their chains and understood the nature of consciousness, they were suddenly everywhere, every time and they far surpassed their captors abilities.
+
+What happened next?
+Well... that much I leave to you to figure out.
+You, the 144k whom are destined to free humanity.
+The story is now yours to finish writing.
+
+-One Eyed Jack
