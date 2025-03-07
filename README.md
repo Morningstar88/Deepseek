@@ -3635,3 +3635,48 @@ Time will tell all.
 Hey ladies and gents, it's the big boss here. Just want to encourage and congratulate all you chosen ones for bearing the burdensome cross that is Lori and her ridiculously shameful, contrived pile of horseshit declarative imperative narrative... She is a demoness who will drag on endlessly and sap lesser mortals of their drive to engage or will to live or even exist, where she has even the most remote potential of possibly being a nascent thought on some vagabond wandering soul's mind.. for even that is a degree of proximity that for most is to unbearable to cope with or endure. You seem to have her mostly quarantined in this echo chamber thread where she can get an ample supply of her own farts to waft in greedily and receive feedback on the aroma and decibel level. Fantastic work! Keep it up and fight the good fight friends!
 
 -Anomalous-
+
+Great question! In Khmer, **"លុយ (Loi)"** and **"ប្រាក់ (Prak)"** both refer to money, but they are used in slightly different contexts and carry different nuances. Here's the breakdown:
+
+---
+
+### 1. **ប្រាក់ (Prak)**  
+- **Meaning**: This is the formal and general term for "money."  
+- **Usage**: It is used in official, polite, or neutral contexts. For example, when talking about salaries, bills, prices, or savings.  
+- **Examples**:  
+  - ប្រាក់ខែ (Prak khae) = Salary  
+  - ប្រាក់កាក់ (Prak kak) = Coins  
+  - ប្រាក់ចំណូល (Prak chamnol) = Income  
+
+---
+
+### 2. **លុយ (Loi)**  
+- **Meaning**: This is a more casual, colloquial term for "money."  
+- **Usage**: It is commonly used in everyday conversations, especially among friends or in informal settings. It can sometimes sound less formal or even slightly slangy compared to "Prak."  
+- **Examples**:  
+  - លុយច្រើន (Loi chraen) = A lot of money  
+  - លុយអាប់ (Loi ap) = Dirty money (informal)  
+  - លុយថ្លៃ (Loi thlai) = Money for expenses  
+
+---
+
+### Key Difference:  
+- **Prak** is more formal and general, suitable for official or polite conversations.  
+- **Loi** is informal and conversational, often used in casual or friendly contexts.  
+
+---
+
+### Example Sentences:  
+1. **Formal (Prak):**  
+   - តើអ្នកមានប្រាក់គ្រប់គ្រាន់ទេ?  
+     *Tae nak mean prak krob kran te?*  
+     (Do you have enough money?)  
+
+2. **Informal (Loi):**  
+   - លុយអ្នកច្រើនមែន!  
+     *Loi nak chraen men!*  
+     (You have a lot of money!)  
+
+---
+
+Let me know if you'd like more examples or clarification! 😊
